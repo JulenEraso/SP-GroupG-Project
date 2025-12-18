@@ -5,7 +5,7 @@
 > - Carmen Aznar Mathonneau
 > - Julen Rodriguez Eraso
 > - Ludovic Mean Touroyan
-> - Serina Allen
+> - Serina Dhruvlata Allen
 > - Victor Gutierrez Gonzalez
 
 <br>
